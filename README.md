@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Axelpieterman
-- 👀 I’m interested in Pussy
+- 👀 I’m interested in ...
 - 🌱 I’m currently learning ICT
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me axelxeon@gmail.com
